@@ -1,1 +1,1 @@
-# exercicio-1-mobile-stephany-silva
+# exercicio-1-mobile-stephany
